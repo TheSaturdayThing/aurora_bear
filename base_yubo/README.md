@@ -1,1 +1,1 @@
-Files from Christian Cardozo with and without Yubo logo
+Files from Christian Cardozo withYubo logo 
