@@ -1,1 +1,3 @@
-Files from Christian Cardozo withYubo logo 
+Files from Christian Cardozo with Yubo logo.
+
+https://www.yubomfg.com
